@@ -12,3 +12,6 @@ A world of dew,
 And within every dewdrop
 
 A world of struggle.
+
+"A Poppy Blooms" by Katsushika Hokusai
+
